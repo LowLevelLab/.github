@@ -17,4 +17,4 @@ usefull in the real World jobs
 - sharmamagi0@gmail.com
 
 - [LowLevelLab](https://lowlevellabs.vercel.app)
-- [Discord](https://discord.gg/e4zqRPHJDe)
+- [Discord](https://discord.gg/v7PmFhyZhW)
